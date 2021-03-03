@@ -1,1 +1,1 @@
-# EasyChurras
+# EasyChurras Institucional
